@@ -10,7 +10,7 @@ Pomodoro 50/10 🍎 <br>
 Data 19/12/2024 <br>
 Pomodoro 50/10 🍎 <br>
 3 ciclos.🔄<br>
-Teve uma reunião que foi após o meu expediente, participei para ficar por dentro do produto que irei atuar.<br>
+OBS: Teve uma reunião que foi após o meu expediente, participei para ficar por dentro do produto que irei atuar.<br>
 Acabei tendo que parar um pouco cedo, pois, meu amigo queria jogar Xadrez, coisa que só fazemos duas vezes por semana.<br>
 
 
