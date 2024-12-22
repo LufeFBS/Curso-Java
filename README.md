@@ -13,11 +13,11 @@ Pomodoro 50/10 🍎 <br>
 3 ciclos.🔄<br>
 
 20/12/2024 📅 <br>
-Pomodoro 50/10 ✅ 🍎 <br>
+Pomodoro 50/10 🍎 <br>
 3 ciclos.🔄<br>
 
 21/12/2024 📅 <br>
-Pomodoro 50/10 ✅ 🍎 <br>
+Pomodoro 50/10 🍎 <br>
 5 ciclos.🔄<br>
 
 
