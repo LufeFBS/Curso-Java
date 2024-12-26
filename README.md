@@ -20,5 +20,28 @@ Pomodoro 50/10 🍎 <br>
 Pomodoro 50/10 🍎 <br>
 5 ciclos.🔄<br>
 
+22/12/2024 📅 <br>
+Pomodoro 50/10 🍎 <br>
+4 ciclos.🔄<br>
+
+23/12/2024 📅 <br>
+Pomodoro 50/10 🍎 <br>
+3 ciclos.🔄<br>
+
+24/12/2024 📅 <br>
+Pomodoro 50/10 🍎 <br>
+2 ciclos.🔄<br>
+
+25/12/2024 📅 <br>
+Pomodoro 50/10 🍎 <br>
+2 ciclos.🔄<br>
+
+Certificação conquistada no dia 22/12/2024
+
+![image](https://github.com/user-attachments/assets/bcb65dea-6ce2-49c9-abc4-132291e89861)
+
+
+
+
 
 
